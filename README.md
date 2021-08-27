@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DvineDK
+- 👀 I’m interested in astronomy, physics, chemistry
+- 🌱 I’m currently learning physics
+- 💞️ I’m looking to collaborate on nothing currently
+- 📫 How to reach me Discord:dvine#6074
